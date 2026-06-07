@@ -10,9 +10,9 @@
 
 ##⭐️👉访问最新地址3：https://wy2.top
 
-##⭐️👉访问最新地址4：https://211.43.148.182:5030
+##⭐️👉访问最新地址4：https://wy639.vip
 
-##⭐️👉访问最新地址5：https://web-133811gqmlc-fndvd9bkfaf8duay.a03.azurefd.net
+##⭐️👉访问最新地址5：https://wy40.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ‼️請使用Ctrl+D進行收藏本站!
